@@ -7,4 +7,5 @@ Agente Lara
 	- 1 kg de preguiça;
 	- 1 tonelada de cansaço;
 	- *Pizza*;
+	- Chocolate;
 	- Pijaminha.
